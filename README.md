@@ -1,6 +1,5 @@
 👋 Hi, I’m @stefania-k23
 👀 I’m interested in collective memory, resource discoverability, and access to information! I also love to learn about history and ways information professionals can assist with reconcilliation. 
-🌱 I’m currently learning ...
 😄 Pronouns: she/her (elle en francais, lei in italiano)
 ⚡ Fun fact: I love to read, I once read 180 books in a year! 
 <!---
